@@ -1,2 +1,0 @@
-# andybriana.com
-andybriana.com
